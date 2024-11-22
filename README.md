@@ -1,4 +1,4 @@
-<img src="https://signal.republika.co.id/posts/182961/7-fakta-menarik-okky-boy-yang-menarik-simpati-warganet">
+<img src="https://signal.republika.co.id/posts/182961/7-fakta-menarik-okky-boy-yang-menarik-simpati-warganet"/>
 
 - 👋 Hi, I’m @Rasyihan321
 - 👀 I’m interested in ...
